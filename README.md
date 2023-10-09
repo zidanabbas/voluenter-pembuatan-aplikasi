@@ -9,3 +9,4 @@ Silahkan menggunakan format berikut : <br>
 
 Berikut adalah daftar volunteer yang diterima : 
 **Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+** Abbas Zidane, [Linkedin](https://linkedin.com/in/zidane-abbas/).
